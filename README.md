@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @droxzyfps1. I have a job at Naughty Dog as a Game Developer and worked on The Last of Us Part II, I also work at Capcom as a game producer for 3 unannounced games. I have made movies "The Insanity" and it became a hit.
+- 👀 I’m interested in learning more coding skills that are move advanced.
+- 🌱 I’m currently learning C#, Advanced Python, Advaned C++
+- 💞️ I’m looking to collaborate on nothing as of now
+- 📫 How to reach me is by my email nneborovsky12@gmail.com or my phone number which is my work number 312-366-4874
